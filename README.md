@@ -4,7 +4,7 @@
 
 🌱 I'm currently working on Myself..🤪
 
-✍️ Hobbies,Interests:✨ Hiking/Trekking/Travelling 🥶✨Music/Dance/Gym ✊🔥
+✍️ Hobbies,Interests:✨ Hiking/Trekking/Travelling/learning 🥶✨Music/Dance/Gym ✊🔥
 
 
  
