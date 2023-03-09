@@ -2,9 +2,9 @@
 
 👩🏼‍💻 Aspiring Software Developer !
 
-🌱 I'm currently working on Myself..🤪
+🌱 I'm currently learning Full-stack-Development!
 
-✍️ Hobbies,Interests:✨ Hiking/Trekking/Travelling/learning 🥶✨Music/Dance/Gym ✊🔥
+✍️ Hobbies,Interests:✨ Hiking/Trekking/Travelling/learning 🥶✨Music/Dance/Gym ✊🔥🤪
 
 
  
