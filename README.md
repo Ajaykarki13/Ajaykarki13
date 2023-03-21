@@ -4,7 +4,7 @@
 
 🌱 I'm currently learning Full-stack-Development!
 
-✍️ Hobbies,Interests:✨ Coding/Hiking/Trekking/Travelling 🥶✨Music/Dance/Gym ✊🔥🤪
+✍️ Hobbies,Interests:✨ Coding/AdventureSports/Travelling 🥶✨Music/Dance/Gym ✊🔥🤪
 
 
  
