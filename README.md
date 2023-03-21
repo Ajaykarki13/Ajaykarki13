@@ -1,10 +1,10 @@
 👋 Hii.. I am Ajay Karki.
 
-👩🏼‍💻 Aspiring Software Developer !
+👩🏼‍💻 Aspiring Developer !
 
 🌱 I'm currently learning Full-stack-Development!
 
-✍️ Hobbies,Interests:✨ Hiking/Trekking/Travelling/learning 🥶✨Music/Dance/Gym ✊🔥🤪
+✍️ Hobbies,Interests:✨ Coding/Hiking/Trekking/Travelling 🥶✨Music/Dance/Gym ✊🔥🤪
 
 
  
